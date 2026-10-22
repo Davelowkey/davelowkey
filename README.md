@@ -1,16 +1,19 @@
-## Hi there 👋
+<table align="center"><th>
+<details><summary> <br> " people i will not interact with "  </summary>  
+Proshippers, darkshippers, Comshippers
 
-<!--
-**davelowkey/davelowkey** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+18+
 
-Here are some ideas to get you started:
+MAP
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Looey fictionkin doubles
+
+Looey yumeshippers
+
+Dandyzworldyuri 
+
+Karinholloway
+
+
+ </details>
+</th></table>
