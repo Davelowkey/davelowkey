@@ -2,7 +2,7 @@
 <p align="center"> <img width="535" height="326" alt="image" src="https://github.com/user-attachments/assets/0871fbea-72c7-4860-8227-a0c786a7c8e4" />
 
 
-<p align="center"> Currently on act 4 of homestuck so i may or may not know stuff sory
+<p align="center"> Currently on act 5 of homestuck so i may or may not know stuff sory
 
 
 <table align="center"><th>
