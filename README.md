@@ -1,5 +1,9 @@
 <p align="center"><a href="https://visitorbadge.io/status?path=Chuds"><img src="https://api.visitorbadge.io/api/visitors?path=Chuds&label=Chuds&labelColor=%23d9e3f0&countColor=%23f47373&style=plastic&labelStyle=upper" /></a>
-<p align="center"> <img width="535" height="326" alt="image" src="https://github.com/user-attachments/assets/0871fbea-72c7-4860-8227-a0c786a7c8e4" />
+<p align="center"><img width="500" height="346" alt="image" src="https://github.com/user-attachments/assets/bc442569-03b2-45ee-9f27-eeef1848f1dd" />
+<img width="650" height="650" alt="image" src="https://github.com/user-attachments/assets/fc37e31b-cb59-4fcc-b5cb-6bd75427ebaf" />
+
+<p align="center">i dunno how to add gifs im kinda slow sory
+
 
 
 <p align="center"> Currently on act 5 act 2 (?) of homestuck so i may or may not know stuff sory
