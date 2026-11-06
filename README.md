@@ -3,8 +3,6 @@
 
 
 
-<p align="center">i dunno how to add gifs im kinda slow sory
-
 
 
 <p align="center"> Currently on act 5 act 2 (?) of homestuck so i may or may not know stuff sory
