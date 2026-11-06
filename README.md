@@ -1,5 +1,6 @@
 <p align="center"><a href="https://visitorbadge.io/status?path=Chuds"><img src="https://api.visitorbadge.io/api/visitors?path=Chuds&label=Chuds&labelColor=%23d9e3f0&countColor=%23f47373&style=plastic&labelStyle=upper" /></a>
-<p align="center"><img width="500" height="346" alt="image" src="https://github.com/user-attachments/assets/bc442569-03b2-45ee-9f27-eeef1848f1dd" />
+<p align="center"><img width="386" height="281" alt="12883d97b122c5776176fce665004522" src="https://github.com/user-attachments/assets/e7081ea0-bc56-4799-98a7-3d42b754da86" />
+
 
 
 <p align="center">i dunno how to add gifs im kinda slow sory
