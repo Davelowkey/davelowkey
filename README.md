@@ -1,4 +1,4 @@
-<p align="center"><a href="https://visitorbadge.io/status?path=Chuds"><img src="https://api.visitorbadge.io/api/visitors?path=Chuds&label=Chuds&labelColor=%23d9e3f0&countColor=%23f47373&style=plastic&labelStyle=upper" /></a>
+<p align="center"><a href="https://visitorbadge.io//status?path=https%3A%2F%2Fgithub.com%2Fdavelowkey"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fdavelowkey&label=Chuds%20%3AB&labelColor=%230186f0&countColor=%23ffffff&style=flat-square&labelStyle=upper" /></a>
 <p align="center"><img width="500" height="429" alt="d40c8ad44426ef5f879b641e6f651ebe" src="https://github.com/user-attachments/assets/2d3d6f1d-db37-4f01-9275-0ce300f673e8" />
 
 
