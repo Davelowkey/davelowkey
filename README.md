@@ -1,5 +1,5 @@
 <p align="center"><a href="https://visitorbadge.io//status?path=https%3A%2F%2Fgithub.com%2Fdavelowkey"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fdavelowkey&label=Chuds%20%3AB&labelColor=%230186f0&countColor=%23ffffff&style=flat-square&labelStyle=upper" /></a>
-<p align="center"><img width="500" height="600" alt="c00e12ad44ec2c20399e2c0002751f3c" src="https://github.com/user-attachments/assets/f2e13efb-ef10-4917-ad03-fd38265ea9d6" />
+<p align="center"><img width="650" height="450" alt="3012499a51cee14ee6bcaa45d71ff6ea" src="https://github.com/user-attachments/assets/809f7db0-ecef-412c-bf8a-82f23d879095" />
 
 
 
@@ -9,7 +9,7 @@
 
 
 <table align="center"><th>
-<details><summary> <br> " people i will not interact with "  </summary>  
+<details><summary> <br> " DNI!!!!! "  </summary>  
 Proshippers, darkshippers, Comshippers
 
 18+
