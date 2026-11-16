@@ -37,3 +37,6 @@ Karinholloway
 
 <p align="center">  gusyj listen to wont say im flushed uts the peakest song ever ok 
 <p align="center"> actually listen to every Broadway homestuck somg heh
+
+
+<p align="center"><img width="155" height="88" alt="688284499-3323d1c0-f660-461f-b4b9-0aa412b526ce" src="https://github.com/user-attachments/assets/f3a46946-b510-4068-96e9-53bf96917f8c" />
