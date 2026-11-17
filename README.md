@@ -5,7 +5,7 @@
 
 
 
-<p align="center"> Currently on act 6 (act 1) of homestuck so i may or may not know stuff sory
+<p align="center"> Currently on act 6 (act 3) of homestuck so i may or may not know stuff sory
 
 
 <table align="center"><th>
